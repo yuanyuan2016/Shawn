@@ -1,6 +1,6 @@
 ## Welcome to Shawn's store | 欢迎来到逍然的店铺
 
-我5岁了，喜欢奥特曼、风火轮。Mail：xiaoran15@qq.com
+我5岁了，喜欢奥特曼、风火轮。email：xiaoran15@qq.com
 
 ### 技能：
 - 钢琴接近3级；
